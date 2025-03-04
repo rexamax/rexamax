@@ -47,9 +47,13 @@
 ---
 
 ### 🧠 Fun Facts
+
 🐉 **Crypto maximalist, but open to innovation**  
+
 🎮 **Gamer & Strategy Enthusiast** – Chess, RTS, and simulation games 🏆
+
 🎬 **Movie & Animation Lover** – Great storytelling inspires great strategies! 🎞️
+
 🌱 **Believe in Making the World Better** – Through knowledge, community, and crypto! 💙
 
 ---
