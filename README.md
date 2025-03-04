@@ -1,7 +1,9 @@
 ### 👋 Hey there, I'm **rexamax**!
 
 🚀 Passionate **crypto investor & strategist** diving deep into blockchain ecosystems.
+
 💡 Exploring **TON | Solana | EVM | Ronin | Kaspa** & beyond!
+
 🎯 Focused on **automation, AI, and innovative crypto projects.**
 
 ---
